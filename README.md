@@ -1,6 +1,13 @@
-wip
+<h3 align="center">души меня хью дэнси</h3>
 
-<!--
+<div align="center">
+  
+![til](https://github.com/EVILRUSSIAN/EVILRUSSIAN/blob/main/image-09-11-24-04-58.gif)
+
+</div>
+
+  
+  <!--
 **EVILRUSSIAN/EVILRUSSIAN** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
