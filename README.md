@@ -2,7 +2,7 @@
 
 <div align="center">
   
-![til](https://github.com/EVILRUSSIAN/EVILRUSSIAN/blob/main/image-09-11-24-04-58.gif)
+![til](https://github.com/EVILRUSSIAN/EVILRUSSIAN/blob/main/image-10-11-24-01-32.gif)
 
 </div>
 
