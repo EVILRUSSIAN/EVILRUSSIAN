@@ -1,5 +1,5 @@
 <div id="header" align="center">
   ∘₊✧──────✧₊∘
-<img src=https://github.com/EVILRUSSIAN/EVILRUSSIAN/blob/main/image-12-12-24-10-30.png>
+<img src=https://github.com/EVILRUSSIAN/EVILRUSSIAN/blob/main/image-25-12-24-12-28.png>
   ∘₊✧──────✧₊∘
 <p align="center"
