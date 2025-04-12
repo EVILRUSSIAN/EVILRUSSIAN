@@ -6,6 +6,6 @@
 
 <p align="center">
 
-<img src="https://files.catbox.moe/hlowmf.png" width="500">
+<img src="https://files.catbox.moe/y8s48e.png" width="500">
 
 </p>
