@@ -14,4 +14,4 @@
 
 ↑ me n miriel fr /j ^_^
 
-[rentry](https://rentry.co/evilrussian) ・┆✦ʚ♡ɞ✦ ┆・ [carrd](https://lifendeathcompanions.carrd.co)
+✦. ── [rentry](https://rentry.co/evilrussian) ・┆✦ʚ♡ɞ✦ ┆・ [carrd](https://lifendeathcompanions.carrd.co) ── .✦
