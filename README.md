@@ -13,3 +13,5 @@
 𝓂/𝓌 𝓎𝒶𝑜𝒾𝑜𝓂𝑒𝑔𝒶𝓋𝑒𝓇𝓈𝑒 𝑔𝒽 𝓊𝓈𝑒𝓇
 
 ↑ me n miriel fr /j ^_^
+
+[rentry](https://rentry.co/evilrussian) ・┆✦ʚ♡ɞ✦ ┆・ [carrd](https://lifendeathcompanions.carrd.co)
