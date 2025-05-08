@@ -4,6 +4,6 @@
 
 <p align="center">
 
-README WIP
+README WIP check rentry and carrd instead ^_^
 
 ✦. ── [rentry](https://rentry.co/evilrussian) ・┆✦ʚ♡ɞ✦ ┆・ [carrd](https://lifendeathcompanions.carrd.co) ── .✦
