@@ -4,6 +4,13 @@
 
 <p align="center">
 
-README WIP check rentry and carrd instead ^_^
 
-✦. ── [rentry](https://rentry.co/evilrussian) ・┆✦ʚ♡ɞ✦ ┆・ [carrd](https://lifendeathcompanions.carrd.co) ── .✦
+<p align="center">
+
+<img src="https://files.catbox.moe/mtkix3.PNG" width="350">
+
+</p>
+
+𝑔𝒾𝓉𝒽𝓊𝒷𝓈 𝓂/𝓌 𝓂𝒾𝓇[𝒾𝑒𝓁](https://github.com/YURiOMEGAVERSE)
+
+✦. ── ren[try](https://rentry.co/evilrussian) ˖⁺‧♡‧⁺˖ [car](https://lifendeathcompanions.carrd.co)rd ── .✦
