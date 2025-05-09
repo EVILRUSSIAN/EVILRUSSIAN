@@ -7,7 +7,7 @@
 
 <p align="center">
 
-<img src="https://files.catbox.moe/mtkix3.PNG" width="350">
+<img src="https://files.catbox.moe/mtkix3.PNG" width="320">
 
 </p>
 
